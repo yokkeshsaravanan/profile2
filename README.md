@@ -1,7 +1,7 @@
 [![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
 <h1 align="center">Hi 👋, I'm yokkesh</h1>
 <h3 align="center">project researcher</h3>
-<img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/116207...">
+<img align="right" alt="Coding" width="400" src="https://www.pinterest.com/pin/eren-eren-jaeger-gif-eren-eren-jaeger-eren-yeager-discover-share-gifs--499195939957803078/">
 - 🔭 I’m final year student of **BTECH MECHATRONICS of srm ist**
 
 - 🌱 I’m currently learning **solidworks**
